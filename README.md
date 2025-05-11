@@ -5,6 +5,8 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=20&color=30FF40&background=000000¢er=true&vCenter=true&width=400&height=25&lines=YOU+RESPECT+ME+I+RESPECT+YOU+😊;YOU+DISPECT+ME+I+FUCK+YOU+🙂)]
 
+![Alt text]([https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/md7Oqrf.gif](https://i.postimg.cc/rsHHDqNL/470182627-1667178510525569-6722599482241727507-n.jpg)
+
 ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/md7Oqrf.gif)
 
 I’m👀 interested in programming...<br>I’m🌱 currently learning python coding...<br>I’m💞️looking to collaborate on ...<br>How📫 to reach me ✅ [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/ewrhridoy00) 
